@@ -1,1 +1,2 @@
 tekst g
+tygtgy adjbdsahi
